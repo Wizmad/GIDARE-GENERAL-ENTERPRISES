@@ -1,0 +1,2 @@
+# GIDARE-GENERAL-ENTERPRISES
+Offers all services
